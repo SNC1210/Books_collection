@@ -1,0 +1,1 @@
+All content on this product is protected by copyright . Unauthorized reproduction or distribution of any material without prior written consent from side is strictly prohibited. This includes but is not limited to text, images, graphics, videos, and any other original content produced by us.
